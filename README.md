@@ -1,16 +1,21 @@
-## Hi there 👋
+hey! this is my secondary account. ₍˄·͈༝·͈˄₎◞ ̑̑
 
-<!--
-**reviealt/reviealt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i'm kayla, an 18 year old computer science student.
+---
 
-Here are some ideas to get you started:
+## about me 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* i'm currently learning about interaction nets and gpu parallelization.
+* i'm always open to learning new things and collaborating on fun projects! (๑•́ ₃ •̀๑)
+
+## contact 💌
+
+* [discord](https://discord.com/users/388688451173875728)
+* [kofi](https://ko-fi.com/correntezas)
+* [twitter](https://x.com/polimorfismos)
+
+let's connect! (｡･ω･｡)ﾉ♡
+
+---
+
+## stats ✨
