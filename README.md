@@ -14,8 +14,5 @@ i'm kayla, an 18 year old computer science student.
 * [kofi](https://ko-fi.com/correntezas)
 * [twitter](https://x.com/polimorfismos)
 
-let's connect! (｡･ω･｡)ﾉ♡
+(｡･ω･｡)ﾉ♡
 
----
-
-## stats ✨
